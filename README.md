@@ -1,2 +1,0 @@
-# AudienceTing
- Portafolio De AudienceTing
